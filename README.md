@@ -27,7 +27,7 @@ About Me:
 - Likes to play Minecraft, Geometry Dash, A Dance of Fire and Ice (ADOFAI), and more!
 - yea :D
 
-### Hey there! I'm SyntaxError52.
+### Hey there! I'm SyntaxError52. (Not to be confused with Syntaxsavy.)
 
 Here are some things about me:
 - Knows HTML, CSS, and Python
