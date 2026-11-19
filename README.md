@@ -51,3 +51,15 @@ Here are some things about me:
 - Barely knows React
 
 ### Thanks to Thundiverter for making the MC Quick Guide!
+
+
+# Proof We Didn't Skid
+
+<img width="474" height="212" alt="image" src="https://github.com/user-attachments/assets/635c0dc7-e5ac-4fd3-be69-d3fa478381f9" />
+
+
+
+
+
+ok so first it is based on eaglercrack also fuck you as well!
+
